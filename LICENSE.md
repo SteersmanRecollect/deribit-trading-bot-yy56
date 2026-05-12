@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with bitmex trading bot AI-powered Algorithm | low-frequency & stop-loss, the #1 bitmex trading bot. Includes low-frequency and stop-loss for a smoother and
 
 
 
